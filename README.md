@@ -1,3 +1,2 @@
-나는 GZone방수라야:::
+수아는 티어캐가 아니니 나만 할거임 ㅅㄱ 
 
-sex king is coming
