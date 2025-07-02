@@ -1,3 +1,3 @@
 나는 GZone방수라야:::
 
-sex king is coming
+# 여기는 휴식처의 인원이 자유롭게 git공부를 하는곳이에요 
